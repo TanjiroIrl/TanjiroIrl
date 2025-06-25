@@ -3,13 +3,13 @@
 </p>
 <p align="center"> ꒰ Ask before you inspo / RP , PLEASE . . . Inspo is okay ♡ as LONG as I'm aware &
 <p align="center"> I am open to rping as long as we talk about it beforehand ♡ ー .ᐟ ♡ ꒱
-<p align="center"> ꒰ INT , C + H is encouraged anytime or whenever I'm not afk .ᐟ You are also free to hide behind me if needed etc.
+<p align="center"> ꒰ INT , C + H is highly encouraged anytime or whenever I'm not afk .ᐟ You are also free to hide behind me if needed etc.
 <p align="center"> ( As long as I'm aware , just do not cover me unless you are a mutual of mine ) . . . .ᐟ ♡ ꒱
 <p align="center"> ꒰ Just be aware that I can be shy & awkward but I do warm up eventually ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Tone indicator's are highly encouraged , I struggle understanding tone's through text . . . ♡ ꒱
 <p align="center"> ꒰ I'm usually sitting alone or with mutual's , I prefer other's to interact first so don't be shy to say hi ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Often I like / want to be alone , sitting around in silence ( You are always free to ask about it , also a fan of being in
-<p align="center"> overwhelming places . . . If you ever want to move . . . Just give me a head's up ) ー .ᐟ ♡ ꒱
+<p align="center"> overwhelming places . . . If you ever want to move etc. . . . Just give me a head's up ) ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Often I'm rather super hyper focus on working on ponies . . . ( Feel free to ask about it anytime ) ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ You are free to sit with me / be AFK around me etc. Even if I am not ,
 <p align="center"> I will keep you company ♡ ( As long as you give me a head's up ) ♡ ー .ᐟ ꒱
