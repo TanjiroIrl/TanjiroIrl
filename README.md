@@ -8,7 +8,7 @@
 <p align="center"> ꒰ Just be aware that I can be shy & awkward but I do warm up eventually ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Tone indicator's are highly encouraged , I struggle understanding tone's through text . . . ♡ ꒱
 <p align="center"> ꒰ I'm usually sitting alone or with mutual's , I prefer other's to interact first so don't be shy to say hi ー .ᐟ ♡ ꒱
-<p align="center"> ꒰ Often I like / want to be alone , sitting around in silence ( You are always free to ask about it , also a fan of being in
+<p align="center"> ꒰ Often I like / want to be alone , sitting around in silence ( You are always free to ask about it , also a big fan of being in
 <p align="center"> overwhelming places . . . If you ever want to move etc. . . . Just give me a head's up ) ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Often I'm rather super hyper focus on working on ponies . . . ( Feel free to ask about it anytime ) ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ You are free to sit with me / be AFK around me etc. Even if I am not ,
