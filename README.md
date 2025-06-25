@@ -17,6 +17,7 @@
 <p align="center"> ꒰ I block freely without ANY type of explanation if you cross my boundaires . . . ꒱
 <p align="center"> ꒰ Every relationship I have here is platonic , English is not my first language
 <p align="center"> so please do not mind my mistakes or point them out . . . ー .ᐟ ♡ ꒱
+<p align="center"> ꒰ You're always free to go off with other friend's or get off etc. ( I won't take offense etc. ) ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Do not ask me to make a pony unless we have some type of friendship etc. ,
 <p align="center"> I only feel comfortable making my kin's or comfort character's . . . ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Please do not force ship's onto me , I respect any type of unharmful ship's / multi shipper's
