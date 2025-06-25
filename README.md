@@ -14,7 +14,7 @@
 <p align="center"> I will keep you company ♡ ( As long as you give me a head's up ) ♡ ー .ᐟ ꒱
 <p align="center"> ꒰ MDNI AT ALL .ᐟ I only play in the 18+ servers , 18+ Hispanic one if I DO want to be more alone . . . ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ I block freely without ANY type of explanation if you cross my boundaires . . .
-<p align="center"> ꒰ Every relationship I have here is platonic , English is not my first language so do not mind my mistakes or point them out . . . ー .ᐟ ♡ ꒱
+<p align="center"> ꒰ Every relationship I have here is platonic , English is not my first language so please do not mind my mistakes or point them out . . . ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Do not ask me to make a pony unless we have some type of friendship etc. ,
 <p align="center"> I only feel comfortable making my kin's or comfort character's . . . ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Please do not force ship's onto me , I respect any type of unharmful ship's / multi shipper's
