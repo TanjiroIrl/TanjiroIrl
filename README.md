@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="1000" height="80" src="![tumblr_484e22cec924a85c185c97a0afaf8279_aaa3c191_640](https://github.com/user-attachments/assets/d4122736-067b-403d-a845-0ae87f53dc77)">
+  <img width="1000" height="80" src="https://github.com/user-attachments/assets/d4122736-067b-403d-a845-0ae87f53dc77">
 </p>
 <p align="center">
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
@@ -28,5 +28,5 @@
 <p align="center">
     ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 <p align="center">
-  <img width="1000" height="80" src="![tumblr_484e22cec924a85c185c97a0afaf8279_aaa3c191_640](https://github.com/user-attachments/assets/d4122736-067b-403d-a845-0ae87f53dc77)">
+  <img width="1000" height="80" src="https://github.com/user-attachments/assets/d4122736-067b-403d-a845-0ae87f53dc77">
 </p>
