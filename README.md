@@ -32,7 +32,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/yxoxu4.webp" alt="Description of your image">
 </p>
-<p align="center"> " Hope you enjoyed the show . . . ♡   Until next time ー .ᐟ ♡ "
+<p align="center"> " Until next time ー . . . ♡ .ᐟ ♡ "
 <p align="center">
   <img width="1000" height="80" src="https://github.com/user-attachments/assets/843f977e-db15-457e-80bf-920629b84435">
 </p>
