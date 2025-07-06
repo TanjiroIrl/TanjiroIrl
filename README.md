@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="1000" height="80" src="https://github.com/user-attachments/assets/fcb33b0d-2430-4a3f-a426-20e488b39337">
+  <img width="1000" height="80" src="https://github.com/user-attachments/assets/569dc4d8-10a5-4ef1-8996-c5c4fee109a7">
 </p>
 <p align="center"> " Welcome to bunbun boy's show . . . ♡ ー .ᐟ ♡ "
 <p align="center">
@@ -32,7 +32,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/yxoxu4.webp" alt="Description of your image">
 </p>
-<p align="center"> " Hope you were entertained . . . ♡ ー .ᐟ ♡ "
+<p align="center"> " Hope you enjoyed the show . . . ♡ ー .ᐟ ♡ "
 <p align="center">
-  <img width="1000" height="80" src="https://github.com/user-attachments/assets/735b97ef-62cd-4ce3-8bef-3d819b664631">
+  <img width="1000" height="80" src="https://github.com/user-attachments/assets/843f977e-db15-457e-80bf-920629b84435">
 </p>
