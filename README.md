@@ -1,9 +1,6 @@
 <p align="center">
   <img width="1000" height="80" src="https://github.com/user-attachments/assets/d4122736-067b-403d-a845-0ae87f53dc77">
 </p>
-<p align="center">
-₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
-</p>
 <p align="center"> ꒰ Ask before you inspo / RP , PLEASE . . . Inspo is okay ♡ as LONG as I'm aware &
 <p align="center"> I am open to rping as long as we talk about it beforehand ♡ ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ INT , C + H is highly encouraged anytime or whenever I'm not afk .ᐟ You are also free to hide behind me if needed etc.
@@ -25,8 +22,6 @@
 <p align="center"> I only feel comfortable making my kin's or comfort character's . . . ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Please do not force ship's onto me , I respect any type of unharmful ship's / multi shipper's
 <p align="center"> but please respect that I am mainly a monoshipper . . . ー .ᐟ ♡ ꒱
-<p align="center">
-    ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 <p align="center">
   <img width="1000" height="80" src="https://github.com/user-attachments/assets/d4122736-067b-403d-a845-0ae87f53dc77">
 </p>
