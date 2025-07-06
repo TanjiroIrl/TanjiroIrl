@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="1000" height="80" src="https://github.com/user-attachments/assets/d4122736-067b-403d-a845-0ae87f53dc77">
+  <img width="1000" height="80" src="https://github.com/user-attachments/assets/fcb33b0d-2430-4a3f-a426-20e488b39337">
 </p>
 <p align="center"> " Welcome to bunbun boy's show . . . ♡ ー .ᐟ ♡ "
 <p align="center">
@@ -31,5 +31,5 @@
 </p>
 <p align="center"> " Hope you were entertained . . . ♡ ー .ᐟ ♡ "
 <p align="center">
-  <img width="1000" height="80" src="https://github.com/user-attachments/assets/d4122736-067b-403d-a845-0ae87f53dc77">
+  <img width="1000" height="80" src="https://github.com/user-attachments/assets/735b97ef-62cd-4ce3-8bef-3d819b664631">
 </p>
