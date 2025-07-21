@@ -5,7 +5,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/hb3rec.webp" alt="Description of your image">
 </p>
-<p align="center"> ꒰ Ask before you inspo / RP , PLEASE . . . Inspo is okay ♡ as LONG as I'm aware &
+<p align="center"> ꒰ Ask to RP beforehand , PLEASE . . . I do not RP easily but
 <p align="center"> I am open to rping as long as we talk about it beforehand ♡ ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ INT , C + H is highly encouraged anytime or whenever I'm not afk .ᐟ You are also free to hide behind me if needed etc.
 <p align="center"> ( As long as I'm aware , just do not cover me unless you are a mutual of mine ) . . . .ᐟ ♡ ꒱
