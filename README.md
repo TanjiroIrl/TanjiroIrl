@@ -14,7 +14,8 @@
 <p align="center"> ꒰ I'm usually sitting alone or with mutual's , I prefer other's to interact first so don't be shy to say hi ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Often I like / want to be alone , sitting around in silence ( You are always free to ask about it , also a big fan of being in
 <p align="center"> overwhelming places . . . If you ever want to move etc. . . . Just give me a head's up ) ー .ᐟ ♡ ꒱
-<p align="center">
+<p align="center"> ꒰ I often project to the character’s I relate to as some sort of comfort so please respect that ー .ᐟ ♡ ꒱
+  <p align="center">
   <img width="1000" height="80" src="https://github.com/user-attachments/assets/a0a1ac99-fd4e-487a-b99a-90b06a359d71">
 </p>
 <p align="center"> ꒰ Often I'm rather super hyper focus on working on ponies . . . ( Feel free to ask about it anytime ) ー .ᐟ ♡ ꒱
