@@ -7,6 +7,8 @@
 </p>
 <p align="center"> ꒰ Ask to RP beforehand , PLEASE . . . I do not RP easily but
 <p align="center"> I am open to rping as long as we talk about it beforehand ♡ ー .ᐟ ♡ ꒱
+<p align="center"> ꒰ Do NOT copy my skins , INSPO is perfectly okay as LONG as you let me know
+<p align="center"> Some skin's are self made while some are from tutorial's ( Feel free to ask about it anytime ) ♡ ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ INT , C + H is highly encouraged anytime or whenever I'm not afk .ᐟ You are also free to hide behind me if needed etc.
 <p align="center"> ( As long as I'm aware , just do not cover me unless you are a mutual of mine ) . . . .ᐟ ♡ ꒱
 <p align="center"> ꒰ Just be aware that I can be shy & awkward but I do warm up eventually ー .ᐟ ♡ ꒱
