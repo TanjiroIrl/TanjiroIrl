@@ -20,6 +20,12 @@
   <p align="center">
   <img width="1000" height="80" src="https://github.com/user-attachments/assets/a0a1ac99-fd4e-487a-b99a-90b06a359d71">
 </p>
+<p align="center">
+  <img width="500" height="500" src="https://github.com/user-attachments/assets/af8a430d-d800-4a2f-904d-f66c8482eeb3">
+  <p align="center"> ꒰ " When the ‧₊˚ ⏾. ⋅ 🎭 fell in  with the ⋆ ☀︎˚｡⋆ ⊹🍦࣪ ˖ , H ♡ B . . . 08 / 31 ー .ᐟ " ꒱
+  <p align="center">
+  <img width="1000" height="80" src="https://github.com/user-attachments/assets/a0a1ac99-fd4e-487a-b99a-90b06a359d71">
+</p>
 <p align="center"> ꒰ Often I'm rather super hyper focus on working on ponies . . . ( Feel free to ask about it anytime ) ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ You are free to sit with me / be AFK around me etc. Even if I am not ,
 <p align="center"> I will keep you company ♡ ( As long as you give me a head's up ) ♡ ー .ᐟ ꒱
