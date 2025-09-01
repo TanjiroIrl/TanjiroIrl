@@ -22,7 +22,7 @@
 </p>
 <p align="center">
   <img width="500" height="500" src="https://github.com/user-attachments/assets/af8a430d-d800-4a2f-904d-f66c8482eeb3">
-  <p align="center"> ꒰ " When the ‧₊˚ ⏾. ⋅ 🎭 fell in  with the ⋆ ☀︎˚｡⋆ ⊹🍦࣪ ˖ , H ♡ B . . . 08 / 31 ー .ᐟ " ꒱
+  <p align="center"> ꒰ " 𝔚𝔥𝔢𝔫 𝔱𝔥𝔢 ‧₊˚ ⏾. ⋅ 🎭 𝔣𝔢𝔩𝔩 𝔦𝔫 𝔴𝔦𝔱𝔥 𝔱𝔥𝔢 ⋆ ☀︎˚｡⋆ ⊹🍦࣪ ˖ , ℌ ♡ 𝔅 . . . 08 / 31 ー .ᐟ " ꒱
   <p align="center">
   <img width="1000" height="80" src="https://github.com/user-attachments/assets/a0a1ac99-fd4e-487a-b99a-90b06a359d71">
 </p>
