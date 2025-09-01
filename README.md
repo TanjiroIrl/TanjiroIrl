@@ -6,7 +6,8 @@
 <img src="https://files.catbox.moe/hb3rec.webp" alt="Description of your image">
 </p>
 <p align="center"> ꒰ Ask to RP beforehand , PLEASE . . . I do not RP easily but
-<p align="center"> I am open to rping as long as we talk about it beforehand ( NO ship rps AT ALL UNLESS YOU ARE MY PARTNER , please respect my boundary ) ♡ ー .ᐟ ♡ ꒱
+<p align="center"> I am open to rping as long as we talk about it beforehand
+<p align="center"> ( NO ship rps AT ALL UNLESS YOU ARE MY PARTNER , please respect my boundary ) ♡ ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Do NOT copy my skins , INSPO is perfectly okay as LONG as you let me know
 <p align="center"> Some skin's are self made while some are from tutorial's ( Feel free to ask about it anytime ) ♡ ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ INT , C + H is highly encouraged anytime or whenever I'm not afk .ᐟ You are also free to hide behind me if needed etc.
@@ -24,8 +25,8 @@
 <p align="center"> ꒰ You are free to sit with me / be AFK around me etc. Even if I am not ,
 <p align="center"> I will keep you company ♡ ( As long as you give me a head's up ) ♡ ー .ᐟ ꒱
 <p align="center"> ꒰ MDNI AT ALL .ᐟ I only play in the 18+ servers , 18+ Hispanic one if I DO want to be more alone . . . ー .ᐟ ♡ ꒱
-<p align="center"> ꒰ I block freely without ANY type of explanation if you cross my boundaries . . . ꒱
-<p align="center"> ꒰ Every relationship I have here is platonic ( EXPECT MY LOVE KEYTT , DO NOT FLIRT WITH ME RP & NON RP WISE ) ,
+<p align="center"> ꒰ I block freely without ANY type of explanation if you cross my boundaries . . . ( I WILL call you out if needed ) ꒱
+<p align="center"> ꒰ Every relationship I have here is platonic ( EXPECT MY LOVE KEYTT , DO NOT FLIRT WITH ME RP & NON RP WISE AT ALL ) ,
 <p align="center"> English is not my first language so please do not mind my mistakes or point them out . . . ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ You're always free to go off with other friend's or get off etc. ( I won't take offense etc. ) ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Do not ask me to make a pony unless we have some type of friendship etc. ,
