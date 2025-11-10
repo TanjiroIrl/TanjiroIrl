@@ -35,7 +35,8 @@
 <p align="center"> English is not my first language so please do not mind my mistakes or point them out . . . ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ You're always free to go off with other friend's or get off etc. ( I won't take offense etc. ) ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ PLEASE int if you relate / love the same characters as I do ,
-<p align="center"> I only feel comfortable making my kin's or comfort character's . . . ー .ᐟ ♡ ꒱
+<p align="center"> I find it so fun & comforting so it's highly encoraged ー .ᐟ ♡ ꒱
+<p align="center"> ꒰ Please respect that I  only feel comfortable making my kin's or comfort character's . . . ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Please do not force ship's onto me , I respect any type of unharmful ship's / multi shipper's
 <p align="center"> but please respect that I am mainly a monoshipper . . . ー .ᐟ ♡ ꒱
 <p align="center">
