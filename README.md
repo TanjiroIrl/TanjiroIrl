@@ -7,9 +7,9 @@
 </p>
 <p align="center"> ꒰ Ask to RP beforehand , PLEASE . . . I do not RP easily but I am open to rping as long as we talk about it beforehand
 <p align="center"> ( NO ship rps AT ALL UNLESS YOU ARE MY PARTNER , please respect my boundary ) ♡ ー .ᐟ ♡ ꒱
-<p align="center"> ꒰ Do NOT copy my skins , INSPO is perfectly okay as LONG as you let me know . . . Some skin's are self made 
-<p align="center"> While some are from tutorial's ( Feel free to ask about it anytime , I also have an inconsistent style ) ♡ ー .ᐟ ♡ ꒱
-<p align="center"> ꒰ INT , C + H is highly encouraged anytime or whenever I'm not afk .ᐟ You are also free to hide behind me if needed etc.
+<p align="center"> ꒰ Do NOT copy my skins , INSPO is perfectly okay as LONG as you let me know . . . 
+<p align="center"> I apologize if I never catch your crown but they're all truly appreciated . . . I also LOVE crowning back ♡ ー .ᐟ ♡ ꒱
+<p align="center"> ꒰ INT , C + H is highly encouraged anytime or whenever I'm not afk .ᐟ You are free to hide behind me if needed etc.
 <p align="center"> ( As long as I'm aware , just do not cover me unless you are a mutual of mine ) . . . .ᐟ ♡ ꒱
 <p align="center"> ꒰ Just be aware that I can be shy & awkward but I do warm up eventually ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Tone indicator's are highly encouraged , I struggle understanding tone's through text . . . ♡ ꒱
@@ -34,7 +34,7 @@
 <p align="center"> ꒰ Every relationship I have here is platonic ( EXPECT MY LOVE KEYTT , DO NOT FLIRT WITH ME RP & NON RP WISE AT ALL ) ,
 <p align="center"> English is not my first language so please do not mind my mistakes or point them out . . . ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ You're always free to go off with other friend's or get off etc. ( I won't take offense etc. ) ー .ᐟ ♡ ꒱
-<p align="center"> ꒰ Do not ask me to make a pony unless we have some type of friendship etc. ,
+<p align="center"> ꒰ PLEASE int if you relate / love the same characters as I do ,
 <p align="center"> I only feel comfortable making my kin's or comfort character's . . . ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Please do not force ship's onto me , I respect any type of unharmful ship's / multi shipper's
 <p align="center"> but please respect that I am mainly a monoshipper . . . ー .ᐟ ♡ ꒱
