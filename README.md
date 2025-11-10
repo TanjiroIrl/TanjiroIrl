@@ -8,7 +8,7 @@
 <p align="center"> ꒰ Ask to RP beforehand , PLEASE . . . I do not RP easily but I am open to rping as long as we talk about it beforehand
 <p align="center"> ( NO ship rps AT ALL UNLESS YOU ARE MY PARTNER , please respect my boundary ) ♡ ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Do NOT copy my skins , INSPO is perfectly okay as LONG as you let me know . . . 
-<p align="center"> I apologize if I never catch your crown but they're all truly appreciated . . . I also LOVE crowning back ♡ ー .ᐟ ♡ ꒱
+<p align="center"> I truly apologize if I never catch your crown but they're all truly appreciated . . . I also LOVE crowning back ♡ ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ INT , C + H is highly encouraged anytime or whenever I'm not afk .ᐟ You are free to hide behind me if needed etc.
 <p align="center"> ( As long as I'm aware , just do not cover me unless you are a mutual of mine ) . . . .ᐟ ♡ ꒱
 <p align="center"> ꒰ Just be aware that I can be shy & awkward but I do warm up eventually ー .ᐟ ♡ ꒱
